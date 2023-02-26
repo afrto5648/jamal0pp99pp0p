@@ -1,2 +1,1 @@
-DRAGON 
-@v_q_j
+AFRTO @r_6_a
